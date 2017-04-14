@@ -1,3 +1,3 @@
-###https://steemit.com/shadowbrokers/@theshadowbrokers/lost-in-translation
+#### https://steemit.com/shadowbrokers/@theshadowbrokers/lost-in-translation
 
-Password = Reeeeeeeeeeeeeee
+>Password = Reeeeeeeeeeeeeee 
